@@ -14,6 +14,12 @@
 
 * [Beth Ditto - I Wrote the Book](https://youtube.com/watch?v=UECeJzd-G30)
 
+## Annihilation and Destruction - Part 1
+
+* [M.A.N.I.C. - I'm Coming Hardcore (Original 91 version)](https://youtube.com/watch?v=4Fu_uld7SIQ)
+
+* [The Prodigy - Firestarter](https://youtube.com/watch?v=wmin5WkOuPw)
+
 ## September 11th 2001
 
 * [To The Moon and Back - Savage Garden](https://youtube.com/watch?v=HCm6gRHINqA)
