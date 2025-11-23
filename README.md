@@ -13,3 +13,5 @@
 * [Let A Boy Cry - Gala](https://youtube.com/watch?v=_bxaDvSTGl0)
 
 * [To The Moon and Back - Savage Garden](https://youtube.com/watch?v=HCm6gRHINqA)
+
+* [Beth Ditto - I Wrote the Book](https://youtube.com/watch?v=UECeJzd-G30)
