@@ -4,6 +4,8 @@
 
 * [She's Electric - Oasis](https://youtube.com/watch?v=h9JZWhjQDvc)
 
+* [Judi Hunter's childhood friend, Caroline Thompson](https://github.com/michaellavelle2025/caroline_recardo)
+  
 * [Judi Hunter's mother, Patricia](https://github.com/michaellavelle2025/patricia_lavelle)
 
 * [Judi Hunter's younger half-brother, Marc](https://github.com/michaellavelle2025/echobox/tree/main?tab=readme-ov-file#marc-fletcher)
