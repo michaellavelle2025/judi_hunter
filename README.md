@@ -30,6 +30,10 @@
 
 * [Oasis - Morning Glory](https://youtube.com/watch?v=Wm54XyLwBAk)
 
+* [Altern 8 - E-Vapor-8](https://youtube.com/watch?v=BkczzkGrYDQ)
+
+* [The Prodigy - Out Of Space](https://youtube.com/watch?v=a4eav7dFvc8)
+
 * [Oasis - Cigarettes and Alcohol](https://youtube.com/watch?v=SaeLKhRnkhQ)
 
 
