@@ -34,7 +34,7 @@
 
 * [The Prodigy - Out Of Space](https://youtube.com/watch?v=a4eav7dFvc8)
 
-* [Oasis - Cigarettes and Alcohol](https://youtube.com/watch?v=SaeLKhRnkhQ)
+* [Oasis - Cigarettes & Alcohol](https://youtube.com/watch?v=UJDK8X5K9mw)
 
 
 ## September 11th 2001
