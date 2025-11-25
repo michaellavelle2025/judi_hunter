@@ -26,9 +26,9 @@
 
 * [Suede - Animal Nitrate](https://youtube.com/watch?v=i7mEB2wnDLQ)
 
-* [Oasis - Morning Glory](https://youtube.com/watch?v=Wm54XyLwBAk)
-
 * [Pet Shop Boys/David Morales - So hard](https://youtube.com/watch?v=1btaBgzGApk)
+
+* [Oasis - Morning Glory](https://youtube.com/watch?v=Wm54XyLwBAk)
 
 * [Oasis - Cigarettes and Alcohol](https://youtube.com/watch?v=SaeLKhRnkhQ)
 
