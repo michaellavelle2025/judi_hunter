@@ -22,6 +22,14 @@
 
 * [The Prodigy - Firestarter](https://youtube.com/watch?v=wmin5WkOuPw)
 
+### Targetting males
+
+* [Suede - Animal Nitrate](https://youtube.com/watch?v=i7mEB2wnDLQ)
+
+* [Oasis - Morning Glory](https://youtube.com/watch?v=Wm54XyLwBAk)
+
+* [Pet Shop Boys/David Morales - So hard](https://youtube.com/watch?v=1btaBgzGApk)
+
 ## September 11th 2001
 
 * [To The Moon and Back - Savage Garden](https://youtube.com/watch?v=HCm6gRHINqA)
