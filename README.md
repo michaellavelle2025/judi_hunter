@@ -16,6 +16,10 @@
 
 * [Beth Ditto - I Wrote the Book](https://youtube.com/watch?v=UECeJzd-G30)
 
+## Abuse
+
+* [Abuse](https://youtube.com/playlist?list=PLf2hNFDbLeZea_n4a4bCEp_9Uk_BamgTR)
+
 ## Annihilation and Destruction - Part 1
 
 * [M.A.N.I.C. - I'm Coming Hardcore (Original 91 version)](https://youtube.com/watch?v=4Fu_uld7SIQ)
