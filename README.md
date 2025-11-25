@@ -30,6 +30,9 @@
 
 * [Pet Shop Boys/David Morales - So hard](https://youtube.com/watch?v=1btaBgzGApk)
 
+* [Oasis - Cigarettes and Alchohol](https://youtube.com/watch?v=SaeLKhRnkhQ)
+
+
 ## September 11th 2001
 
 * [To The Moon and Back - Savage Garden](https://youtube.com/watch?v=HCm6gRHINqA)
